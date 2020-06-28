@@ -5,9 +5,11 @@ thirteen to fourteen years old, Anderson went on to become a respected member of
 community through his involvement in football and hockey. 
 
 ## Charaktereigenschaften
-
 * liebt Trinity
 * verkloppt gerne Morpheus
 * lässt gerne die Zeit stehen
 * sammelt Pistolenkugeln
+
+> What are you trying to tell me? That I can dodge bullets?
+
 
